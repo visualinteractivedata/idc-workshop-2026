@@ -34,7 +34,7 @@ The half-day workshop will be in-person-only and include hands-on activities and
 
 We invite two types of submissions to the workshop: 
 
-* Activities (4-6 pages) that have been designed for children or that may work well for children to promote data-driven play and data literacy through visual, physical, and tangible representations in the wider sense. For submitting an activity, please follow our [template](Activity_Template.pdf), that will help you describe your activity in terms of context, targeted age group, activity instructions, materials required, and findings and challenges encountered. 
+* Activities (2-6 pages) that have been designed for children or that may work well for children to promote data-driven play and data literacy through visual, physical, and tangible representations in the wider sense. For submitting an activity, please follow our [template](Activity_Template.pdf), that will help you describe your activity in terms of context, targeted age group, activity instructions, materials required, and findings and challenges encountered. 
 
 Activity authors will be invited to present their activity, and we will trial selected activities at the workshop in small groups. 
 
