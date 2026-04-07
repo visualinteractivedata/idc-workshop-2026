@@ -48,7 +48,7 @@ We accept double/single-blind submissions emailed to the lead author. At least o
 
 All deadlines are at 11:59pm (23:59) AoE (Anywhere on Earth) 
 
-* April 7, 2026: Activities and Report Submission 
+* April 14, 2026: Activities or Report Submission 
 
 * May 1, 2026: Author Notification 
 
@@ -56,7 +56,7 @@ All deadlines are at 11:59pm (23:59) AoE (Anywhere on Earth)
 
 * June 22, 2026: Workshop day 
 
-Submissions will be accepted through email. Please email your submissions copying to Dushani Perera, Christina Stoiber, and Andres Ramirez-Duque at _d.perera@ed.ac.uk_, _christina.stoiber@ustp.at_, and _andres.ramirez-duque@glasgow.ac.uk_. 
+**Submissions will be accepted through email**. Please email your submissions copying to Dushani Perera, Christina Stoiber, and Andres Ramirez-Duque at _d.perera@ed.ac.uk_, _christina.stoiber@ustp.at_, and _andres.ramirez-duque@glasgow.ac.uk_. 
 
 # Organizers 
 
