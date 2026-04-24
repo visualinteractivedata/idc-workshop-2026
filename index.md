@@ -48,11 +48,11 @@ We accept double/single-blind submissions emailed to the lead author. At least o
 
 All deadlines are at 11:59pm (23:59) AoE (Anywhere on Earth) 
 
-* April 14, 2026: Activities or Report Submission 
+* May 04, 2026: Activities or Report Submission 
 
-* May 1, 2026: Author Notification 
+* May 05, 2026: Author Notification 
 
-* May 6, 2026: Camera-ready Submission 
+* May 06, 2026: Camera-ready Submission 
 
 * June 22, 2026: Workshop day 
 
