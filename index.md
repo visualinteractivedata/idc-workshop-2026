@@ -32,31 +32,9 @@ Workshop activities will touch upon questions regarding activity design, activit
 
 The half-day workshop will be in-person-only and include hands-on activities and panel discussions. It will also offer networking opportunities through small-group conversations in World Café-style .  
 
-We invite two types of submissions to the workshop: 
-
-* Activities (2-6 pages) that have been designed for children or that may work well for children to promote data-driven play and data literacy through visual, physical, and tangible representations in the wider sense. For submitting an activity, please follow our [template](Activity_Template.pdf), that will help you describe your activity in terms of context, targeted age group, activity instructions, materials required, and findings and challenges encountered. 
-
-Activity authors will be invited to present their activity, and we will trial selected activities at the workshop in small groups. 
-
-* Reports (1-2 pages)  that reflect on experiences with or perspectives on designing and running data-driven activities with children. These reports may reflect on the questions listed above. Reports may be practice-oriented, speculative, and/or draw on existing theories in education and visualization, for example. Reports do not follow a particular template, but should not exceed 1-2 pages.  
-
-Authors of reports will be invited to present their perspectives in the form of a panel discussion at the workshop. 
-
-We accept double/single-blind submissions emailed to the lead author. At least one author for each paper or educator report must register and attend the conference in person. 
-
-# Important Dates 
-
-All deadlines are at 11:59pm (23:59) AoE (Anywhere on Earth) 
-
-* May 04, 2026: Activities or Report Submission 
-
-* May 05, 2026: Author Notification 
-
-* May 06, 2026: Camera-ready Submission 
-
-* June 22, 2026: Workshop day 
-
-**Submissions will be accepted through email**. Please email your submissions copying to Dushani Perera, Christina Stoiber, and Andres Ramirez-Duque at _d.perera@ed.ac.uk_, _christina.stoiber@ustp.at_, and _andres.ramirez-duque@glasgow.ac.uk_. 
+**We invite anyone interested to participate without any submission.**
+Please email your interest to register and participate in-person, copying Dushani Perera, Christina Stoiber, and Andres Ramirez-Duque at _d.perera@ed.ac.uk_, _christina.stoiber@ustp.at_, and _andres.ramirez-duque@glasgow.ac.uk_. 
+You will need to register and pay for the conference and participate in person.
 
 # Organizers 
 
