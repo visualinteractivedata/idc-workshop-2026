@@ -34,6 +34,7 @@ The half-day workshop will be in-person-only and include hands-on activities and
 
 **We invite anyone interested to participate without any submission.**
 Please email your interest to register and participate in-person, copying Dushani Perera, Christina Stoiber, and Andres Ramirez-Duque at _d.perera@ed.ac.uk_, _christina.stoiber@ustp.at_, and _andres.ramirez-duque@glasgow.ac.uk_. 
+
 **Please inform us about your in-person participation on or before the 4th of May 2026.**
 You will need to register and pay for the conference and participate in person.
 
